@@ -13,6 +13,6 @@ https://github.com/aasfaw95
 https://www.linkedin.com/in/abyssinia-asfaw-b2a0a41b3/
 
 ### Resume
-https://docs.google.com/document/d/1eIu4zDZ26IZRZPrGFTlWnbOtqJGrCz6QRx6NmdHeH-U/edit?usp=sharing
+https://docs.google.com/document/d/1eIu4zDZ26IZRZPrGFTlWnbOtqJGrCz6QRx6NmdHeH-U/edit#
 
 
